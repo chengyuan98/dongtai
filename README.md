@@ -1,6 +1,6 @@
 ## 动态新闻入口：
 
-# <a href="https://rawgit.com/fwqtz/fqtz1001/master/fwqtz01.html">入口1</a>  <a href="https://rawgit.com/fwqtz/fqtz1002/master/fwqtz02.html">入口2</a>
+# <a href="https://github.com/cunzhen99/free99/blob/master/README.md">入口1</a>  <a href="https://git.io/free99">入口2</a>
 
 ### 以下是网站截图：
 
