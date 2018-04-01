@@ -1,6 +1,6 @@
-## 动态新闻入口：
+## 动态网新闻入口：
 
-# <a href="https://github.com/cunzhen99/free99/blob/master/README.md">入口1</a>  <a href="https://git.io/free99">入口2</a>
+## 翻墙情况下，在 https://www.google.com/ 搜索“动态”即可。
 
 ### 以下是网站截图：
 
