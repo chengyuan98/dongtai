@@ -2,5 +2,5 @@
 
 ### 或点击下图，進入新闻首页：
 ####
-<a href="http://dongtaiwang.com/loc/phome.php?v=0"><img src="https://github.com/chengyuan98/up/blob/master/dtw20170711.jpg" />
+<a href="http://mpzbsygfls.okjgwa62.gq/1/"><img src="https://github.com/chengyuan98/up/blob/master/dtw20170711.jpg" />
 
