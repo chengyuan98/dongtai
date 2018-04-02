@@ -2,5 +2,5 @@
 
 ### 或点击下图，進入新闻首页：
 ####
-<a href="http://mpzbsygfls.okjgwa62.gq/1/"><img src="https://github.com/chengyuan98/up/blob/master/dtw20170711.jpg" />
+<a href="http://t.cn/RW999di"><img src="https://github.com/chengyuan98/up/blob/master/dtw20170711.jpg" />
 
