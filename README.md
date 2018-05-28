@@ -4,5 +4,4 @@
 
 ### 以上网址需要翻墙，或尝试点击下图，直接進入新闻首页：
 
-<a href="http://t.cn/R1LWULa"><img src="https://github.com/chengyuan98/up/blob/master/dtw20170711.jpg" />
-
+<a href="http://e3.s42f.ga/523/?3654"><img src="https://github.com/chengyuan98/up/blob/master/dtw20170711.jpg" />
