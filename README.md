@@ -4,4 +4,4 @@
 
 ### 以上网址需要翻墙，或尝试点击下图，直接進入新闻首页：
 
-<a href="https://um.dsseth.ml/?wkUWxZCNrI4y7=hoC7Mwe&L6=CGFRu5&8nvNT=jv-Y&h6y=0kF5X4c&y8TUgE=zG_&ER6th2Jb1=grwO"><img src="https://github.com/chengyuan98/up/blob/master/dtw20200407.jpg" />
+<a href="https://a1.gddrry.gq/ccc/hao/585888"><img src="https://github.com/chengyuan98/up/blob/master/dtw20200407.jpg" />
